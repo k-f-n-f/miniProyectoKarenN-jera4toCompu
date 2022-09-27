@@ -1,1 +1,0 @@
-# miniProyectoKarenN-jera4toCompu
